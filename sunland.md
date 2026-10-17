@@ -26,6 +26,9 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
 ### Jewish
 - [Chabad of the Crescenta Valley](https://www.cvchabad.org/) — Rabbi Mendy and Mushka Grossbaum. Mailing address: P.O. Box 1604, La Cañada Flintridge, CA 91012 - [(323) 308-5727](tel:323-308-5727)
 
+### Other Churches and Temples
+- [Church of Scientology Mission of Sunland](https://sunland.scientologymissions.org/) — [9913 Commerce Ave, Tujunga, CA 91042](https://maps.google.com/?q=9913+Commerce+Ave,+Tujunga,+CA+91042) - [(818) 395-7127](tel:818-395-7127)
+
 ### Libraries
 - [Sunland-Tujunga Branch Library](https://www.lapl.org/branches/sunland-tujunga) (Los Angeles Public Library) — includes a Friends of the Library used bookstore. [7771 Foothill Blvd, Tujunga, CA 91042](https://maps.google.com/?q=7771+Foothill+Blvd,+Tujunga,+CA+91042) - [(818) 352-4481](tel:818-352-4481). Mon and Wed 10 AM – 8 PM, Tue and Thu 12 – 8 PM, Fri and Sat 9:30 AM – 5:30 PM, closed Sunday.
 - [Lake View Terrace Branch Library](https://www.lapl.org/branches/lake-view-terrace) (Los Angeles Public Library) — [12002 Osborne St, Lake View Terrace, CA 91342](https://maps.google.com/?q=12002+Osborne+St,+Lake+View+Terrace,+CA+91342) - [(818) 890-7404](tel:818-890-7404). Mon and Wed 10 AM – 8 PM, Tue and Thu 12 – 8 PM, Fri and Sat 9:30 AM – 5:30 PM, closed Sunday.

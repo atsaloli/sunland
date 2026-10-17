@@ -26,6 +26,12 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
 ### Jewish
 - [Chabad of the Crescenta Valley](https://www.cvchabad.org/) — Rabbi Mendy and Mushka Grossbaum. Mailing address: P.O. Box 1604, La Cañada Flintridge, CA 91012 - [(323) 308-5727](tel:323-308-5727)
 
+### Libraries
+- [Sunland-Tujunga Branch Library](https://www.lapl.org/branches/sunland-tujunga) (Los Angeles Public Library) — includes a Friends of the Library used bookstore. [7771 Foothill Blvd, Tujunga, CA 91042](https://maps.google.com/?q=7771+Foothill+Blvd,+Tujunga,+CA+91042) - [(818) 352-4481](tel:818-352-4481). Mon and Wed 10 AM – 8 PM, Tue and Thu 12 – 8 PM, Fri and Sat 9:30 AM – 5:30 PM, closed Sunday.
+- [Lake View Terrace Branch Library](https://www.lapl.org/branches/lake-view-terrace) (Los Angeles Public Library) — [12002 Osborne St, Lake View Terrace, CA 91342](https://maps.google.com/?q=12002+Osborne+St,+Lake+View+Terrace,+CA+91342) - [(818) 890-7404](tel:818-890-7404). Mon and Wed 10 AM – 8 PM, Tue and Thu 12 – 8 PM, Fri and Sat 9:30 AM – 5:30 PM, closed Sunday.
+- [La Crescenta Library](https://lacountylibrary.org/lacrescenta-library/) (LA County Library) — [2809 Foothill Blvd, La Crescenta, CA 91214](https://maps.google.com/?q=2809+Foothill+Blvd,+La+Crescenta,+CA+91214) - [(818) 248-5313](tel:818-248-5313). Open seven days, including Sunday afternoons.
+- [Montrose-Crescenta Branch Library](https://www.glendaleca.gov/government/departments/library-arts-culture) (Glendale Public Library) — [2465 Honolulu Ave, Montrose, CA 91020](https://maps.google.com/?q=2465+Honolulu+Ave,+Montrose,+CA+91020) - [(818) 548-2048](tel:818-548-2048). Call for hours.
+
 ### Parks and Recreation
 - [Sunland Recreation Center](https://www.laparks.org/reccenter/sunland) (Sunland Park) — [8651 Foothill Blvd, Sunland, CA 91040](https://maps.google.com/?q=8651+Foothill+Blvd,+Sunland,+CA+91040) - [(818) 352-5282](tel:818-352-5282). Mon–Fri 11 AM – 9 PM, Sat 9 AM – 5 PM, closed Sunday.
 

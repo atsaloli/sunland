@@ -38,5 +38,10 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
 ### Parks and Recreation
 - [Sunland Recreation Center](https://www.laparks.org/reccenter/sunland) (Sunland Park) — [8651 Foothill Blvd, Sunland, CA 91040](https://maps.google.com/?q=8651+Foothill+Blvd,+Sunland,+CA+91040) - [(818) 352-5282](tel:818-352-5282). Mon–Fri 11 AM – 9 PM, Sat 9 AM – 5 PM, closed Sunday.
 
+### Smog Check
+- ⭐ [Tujunga Star Smog Check](https://tujungasmog.com/) — test only, STAR certified. $29.75 with [coupon](https://tujungasmog.com/) + $8.25 state certificate. [7671 Foothill Blvd, Tujunga, CA 91042](https://maps.google.com/?q=7671+Foothill+Blvd,+Tujunga,+CA+91042) - [(818) 352-6334](tel:818-352-6334). Mon–Fri 8 AM – 5 PM, Sat 8 AM – 2 PM.
+- Tujunga Smog Test Only Center — test only, STAR certified. Price not published; says it price matches. [7624 Foothill Blvd Ste D, Tujunga, CA 91042](https://maps.google.com/?q=7624+Foothill+Blvd+Ste+D,+Tujunga,+CA+91042) - [(818) 951-1700](tel:818-951-1700). Mon–Fri 8 AM – 5 PM, Sat 8 AM – 2 PM.
+- Pete's Complete Auto Repair — test and repair, STAR certified; can fix the car if it fails. [7545 Foothill Blvd, Tujunga, CA 91042](https://maps.google.com/?q=7545+Foothill+Blvd,+Tujunga,+CA+91042)
+
 ### Spas and Saunas
 - [Descanso Garden Spa](https://www.yelp.com/biz/descanso-garden-spa-tujunga) — Korean spa with hot and cold tubs, cold room, and several saunas. Co-ed upstairs; gender-separated wet areas downstairs. (Not affiliated with Descanso Gardens.) [7226 Foothill Blvd, Tujunga, CA 91042](https://maps.google.com/?q=7226+Foothill+Blvd,+Tujunga,+CA+91042) - [(818) 352-2500](tel:818-352-2500). Call ahead for hours and prices.

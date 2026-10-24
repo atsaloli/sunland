@@ -8,6 +8,10 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
 
 - [Sunland Recreation Center](https://www.laparks.org/reccenter/sunland) — classes and programs
 
+### Halloween 2026
+
+- **Trunk-or-Treat** — Sunland Neighborhood Church. Sat, Oct 31, 6–8:30 PM. Safe, family fun with tons of candy, a costume contest, a car decorating contest, music, and food. Costumes and decorations must be family-friendly. [10632 Oro Vista Ave, Sunland, CA 91040](https://maps.google.com/?q=10632+Oro+Vista+Ave,+Sunland,+CA+91040)
+
 ## Resources
 
 ### Food Banks

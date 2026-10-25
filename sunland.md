@@ -13,6 +13,11 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
 - **Trunk-or-Treat** — Sunland Neighborhood Church. Sat, Oct 31, 6–8:30 PM. Safe, family fun with tons of candy, a costume contest, a car decorating contest, music, and food. Costumes and decorations must be family-friendly. [10632 Oro Vista Ave, Sunland, CA 91040](https://maps.google.com/?q=10632+Oro+Vista+Ave,+Sunland,+CA+91040)
 - **[Harvest Festival](https://www.newhopesunland.com/event-info/harvest-festival-is-coming)** — New Hope Community Church. Sat, Oct 31, 5:30–8 PM. Free candy, popcorn, and nachos, plus games and fun for the whole family. [10438 Oro Vista Ave, Sunland, CA 91040](https://maps.google.com/?q=10438+Oro+Vista+Ave,+Sunland,+CA+91040) - [(818) 353-8555](tel:818-353-8555)
 
+### November 2026
+
+- **[Concert in the Foothills: New Dawn](https://www.newhopesunland.com/)** — New Hope Community Church. Sat, Nov 7, 7 PM. An evening of worship, fellowship, and music; bring family and friends. [10438 Oro Vista Ave, Sunland, CA 91040](https://maps.google.com/?q=10438+Oro+Vista+Ave,+Sunland,+CA+91040) - [(818) 353-8555](tel:818-353-8555)
+- **[The Chosen Season 6, Episode 1 Screening](https://www.newhopesunland.com/)** — New Hope Community Church. Tue, Nov 10, 6:30 PM. Special screening in place of the regular Tuesday Night Community Discipleship Groups; bring family and friends. [10438 Oro Vista Ave, Sunland, CA 91040](https://maps.google.com/?q=10438+Oro+Vista+Ave,+Sunland,+CA+91040) - [(818) 353-8555](tel:818-353-8555)
+
 ## Resources
 
 ### Food Banks

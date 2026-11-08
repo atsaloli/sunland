@@ -46,6 +46,7 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
 - [Montrose-Crescenta Branch Library](https://locator.lacounty.gov/lac/Location/3177236/glendale-public-library---montrose-crescenta-branch-library) (Glendale Public Library) — [2465 Honolulu Ave, Montrose, CA 91020](https://maps.google.com/?q=2465+Honolulu+Ave,+Montrose,+CA+91020) - [(818) 548-2048](tel:818-548-2048). Call for hours.
 
 ### Parks and Recreation
+- [Joslyn Adult Center](https://www.burbankca.gov/web/parks-recreation/adults-55) (City of Burbank) — center for adults 55+; classes, activities, day trips. [1301 W Olive Ave, Burbank, CA 91506](https://maps.google.com/?q=1301+W+Olive+Ave,+Burbank,+CA+91506) - [(818) 238-5353](tel:818-238-5353) - [joslyn@burbankca.gov](mailto:joslyn@burbankca.gov). Mon–Thu 8 AM – 8 PM, Fri 8 AM – 6 PM, Sat 9 AM – 1 PM, Sun 12 – 4 PM (per Sept 2024 city schedule; call to confirm). Art show "Trick or Treat or Art" runs through Mon, Nov 16, 2026.
 - [Sunland Recreation Center](https://www.laparks.org/reccenter/sunland) (Sunland Park) — [8651 Foothill Blvd, Sunland, CA 91040](https://maps.google.com/?q=8651+Foothill+Blvd,+Sunland,+CA+91040) - [(818) 352-5282](tel:818-352-5282). Mon–Fri 11 AM – 9 PM, Sat 9 AM – 5 PM, closed Sunday.
 
 ### Smog Check

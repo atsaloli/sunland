@@ -17,6 +17,7 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
 
 - **[Concert in the Foothills: New Dawn](https://www.newhopesunland.com/)** — New Hope Community Church. Sat, Nov 7, 7 PM. An evening of worship, fellowship, and music; bring family and friends. [10438 Oro Vista Ave, Sunland, CA 91040](https://maps.google.com/?q=10438+Oro+Vista+Ave,+Sunland,+CA+91040) - [(818) 353-8555](tel:818-353-8555)
 - **[The Chosen Season 6, Episode 1 Screening](https://www.newhopesunland.com/)** — New Hope Community Church. Tue, Nov 10, 6:30 PM. Special screening in place of the regular Tuesday Night Community Discipleship Groups; bring family and friends. [10438 Oro Vista Ave, Sunland, CA 91040](https://maps.google.com/?q=10438+Oro+Vista+Ave,+Sunland,+CA+91040) - [(818) 353-8555](tel:818-353-8555)
+- **[Teens Give Back](https://glendaleca.libnet.info/event/17305114)** — Glendale Central Library Teen Space. Tue, Nov 17, 4:30–5:30 PM (meets twice a month on Tuesdays). Volunteer for school community service hours; for teens 13–18. Free 3-hour parking at the Marketplace structure across Harvard St with validation. [222 E Harvard St, Glendale, CA 91205](https://maps.google.com/?q=222+E+Harvard+St,+Glendale,+CA+91205) - [(818) 548-2021](tel:818-548-2021)
 
 ## Resources
 

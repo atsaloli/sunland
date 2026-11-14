@@ -51,6 +51,9 @@ Author: Aleksey Tsalolikhin: [Facebook](https://www.facebook.com/atsaloli) | [Li
 - [Joslyn Adult Center](https://www.burbankca.gov/web/parks-recreation/adults-55) (City of Burbank) — center for adults 55+; classes, activities, day trips. [1301 W Olive Ave, Burbank, CA 91506](https://maps.google.com/?q=1301+W+Olive+Ave,+Burbank,+CA+91506) - [(818) 238-5353](tel:818-238-5353) - [joslyn@burbankca.gov](mailto:joslyn@burbankca.gov). Mon–Thu 8 AM – 8 PM, Fri 8 AM – 6 PM, Sat 9 AM – 1 PM, Sun 12 – 4 PM (per Sept 2024 city schedule; call to confirm). Art show "Trick or Treat or Art" runs through Mon, Nov 16, 2026.
 - [Sunland Recreation Center](https://www.laparks.org/reccenter/sunland) (Sunland Park) — [8651 Foothill Blvd, Sunland, CA 91040](https://maps.google.com/?q=8651+Foothill+Blvd,+Sunland,+CA+91040) - [(818) 352-5282](tel:818-352-5282). Mon–Fri 11 AM – 9 PM, Sat 9 AM – 5 PM, closed Sunday.
 
+### Restaurants
+- Joselito's Mexican Food — Mexican restaurant with a large patio (dog-friendly, with a dog menu); also does catering. Overflow parking lot across Foothill. [7308 Foothill Blvd, Tujunga, CA 91042](https://www.google.com/maps/place/?q=place_id:ChIJJ4MtLk7rwoARrUNml1dvrW4) - [(818) 951-2275](tel:818-951-2275). Sun–Thu 11 AM – 9:30 PM, Fri–Sat 11 AM – 10 PM.
+
 ### Smog Check
 - [Tujunga Star Smog Check](https://tujungasmog.com/) — test only, STAR certified. $29.75 with [coupon](https://tujungasmog.com/) + $8.25 state certificate. [7671 Foothill Blvd, Tujunga, CA 91042](https://maps.google.com/?q=7671+Foothill+Blvd,+Tujunga,+CA+91042) - [(818) 352-6334](tel:818-352-6334). Mon–Fri 8 AM – 5 PM, Sat 8 AM – 2 PM.
 
